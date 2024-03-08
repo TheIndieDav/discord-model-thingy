@@ -1,0 +1,7 @@
+0 Guacamayos
+1 Canarios
+2 Cacatúa (Cacatuidae)
+3 Bolborhynchus lineola
+4 Ara ararauna
+5 Amazona aestiva
+6 Agapornis
