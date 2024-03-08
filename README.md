@@ -3,4 +3,4 @@ Tiene bastantes commandos
 
 Para usar la ia
 
-Solo pone 7im y despues la imagen
+Solo pone 7im y despues la imagen 😝😝😝
